@@ -55,4 +55,4 @@ Denizhan Alan
 
 Electrical and Electronics Engineering Student | Piri Reis University
 
-denizhan.alan@stu.pirireis.edu.tr
+dalan147@outlook.com
